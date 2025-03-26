@@ -1,5 +1,4 @@
 - Hi, I’m @hasan-03
-- I’m interested in web development
 - I’m currently purshuing B.Tech in ELectrical Engineering from IIT Gandhinagar
 - You can reaach out to me on my email id-hasan33ali2005@gmail.com
 
